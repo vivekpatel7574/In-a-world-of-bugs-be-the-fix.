@@ -1,1 +1,1 @@
-Write code others will love 📝💻❤️👩‍💻👨‍💻
+Write code others will love 📝💻❤️👨‍💻
